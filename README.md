@@ -1,7 +1,9 @@
 
-![MasterHead](https://github.com/user-attachments/assets/2262e7b5-a0bc-412f-87fa-cacc343dac3d)
 
-<h1 align="center">⠀꧁𝔂𝓪𝓼𝓼 𝓺𝓾𝓮𝓮𝓷꧂ ⠀⠀⠀</h1>
+![MasterHead](https://github.com/user-attachments/assets/fb504f85-6e70-47fb-a06b-d7a117bbc08a)
+
+
+<h1 align="center">⠀꧁𝔂𝓪𝓼𝓼 𝓺𝓾𝓮𝓮𝓷꧂ </h1>
 <h3 align="center">✬⁺⋰𝒮ℒ𝒜𝒴𝒴✧⁺⋱</h3>
  
 ![MasterHead](https://github.com/user-attachments/assets/01d9af1d-f9dc-4620-a929-ea3932f914b6)
